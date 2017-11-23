@@ -1,0 +1,1 @@
+Karolina Kopycka, bêdê teraz solidnie pracowa³ w projektach, gdy¿ moje zaanga¿owanie jest mierzone przez wys³ane przeze mnie commity
